@@ -1,2 +1,2 @@
 # Combat-Master-BOT
-idk?
+JUST BE A FUCKING SMART
